@@ -35,7 +35,6 @@ Legal & Compliance professional with 14+ years experience, now focusing on ethic
 - **Cross-Cultural:** EU/Balkan context understanding
 
 ## 📫 Contact & Collaboration
-- **Email:** annanikolova126@gmail.com
 - **LinkedIn:** https://www.linkedin.com/in/anna-vladimirova-36174b3a0
 - **Location:** Varna, Bulgaria
 - **Availability:** Open for consulting, research collaboration, ethical AI projects
